@@ -5,7 +5,7 @@
 ᴀᴀᴅɪɪ 
 ғᴀʜᴇᴇᴍ
 ʟɪʏᴀǫᴀᴛ 
-        <h1><font size="400"><font color="orange">𝚒 𝚕𝚘𝚟𝚎 𝚖𝚢 𝚏𝚛𝚒𝚗𝚍𝚜 </font>
+        <font size="400"><font color="orange">𝚒 𝚕𝚘𝚟𝚎 𝚖𝚢 𝚏𝚛𝚒𝚗𝚍𝚜 </font>
 
  <a href="https://instagram.com/___meir___muzamil__?igshid=NGVhN2U2NjQ0Yg=="> 
  <br><font color="blackdark"><font size="70"><centre>                ᴡᴇʟʟᴄᴏᴍᴇ ᴛᴏ ᴏᴜʀ ᴄʜᴀɴɴᴇʟ</centre>
@@ -17,6 +17,7 @@
 <font color="blue"><font size="100">w𝒆𝒍𝒍 𝒄𝒐𝒎𝒆 𝒕𝒐 𝒐𝒖𝒓 𝒘𝒆𝒃𝒔𝒊𝒕𝒆</font></font>
 <a href="https://instagram.com/___meir___muzamil__?igshid=NGVhN2U2NjQ0Yg== "><br><font size="30">ғᴏʟʟᴏᴡ ᴍʏ ɪɴsᴛᴀɢʀᴀᴍ ɪᴅ</font>
 
+<font size="400"><font color="orange">𝚒 𝚕𝚘𝚟𝚎 𝚖𝚢 𝚏𝚛𝚒𝚗𝚍𝚜 </font>
 
 
 <a href="https://youtube.com/@muzamilmeer?feature=shared "><br><font color="blue red"><font size="40"> sᴜʙsᴄʀɪʙᴇ ɴᴏᴡ
