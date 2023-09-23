@@ -17,5 +17,5 @@
 <a href="https://instagram.com/___meir___muzamil__?igshid=NGVhN2U2NjQ0Yg== "><br>ғᴏʟʟᴏᴡ ᴍʏ ɪɴsᴛᴀɢʀᴀᴍ ɪᴅ
 
 
-<a href="https://youtube.com/@muzamilmeer?feature=shared "><br> sᴜʙsᴄʀɪʙᴇ ɴᴏᴡ
-<br><font color="green">ᴛʜᴀɴᴋs ғᴏʀ ᴠɪsɪᴛɪɴɢ
+<a href="https://youtube.com/@muzamilmeer?feature=shared "><br><font color="blue red"><font size="40"> sᴜʙsᴄʀɪʙᴇ ɴᴏᴡ
+<br><font color="green"><font size="50"> ᴛʜᴀɴᴋs ғᴏʀ ᴠɪsɪᴛɪɴɢ
