@@ -1,11 +1,12 @@
-# Muzamil
+             #ｍ𝗎𝘇ɑｍⅈ𝘐
             <centre>ᴍʏ ғɪʀsᴛ ᴘʀᴏᴊᴇᴄᴛ 🧗┣┓Love┏♨❤♨┑You┏┥</centre>
 ᴀᴜᴛʜᴏʀ ɴᴀᴍᴇ : ᴍᴜᴢᴀᴍɪʟ 
 ғʀɪɴᴅs ɴᴀᴍᴇ :sᴀᴍᴇᴇʀ 
 ᴀᴀᴅɪɪ 
 ғᴀʜᴇᴇᴍ
 ʟɪʏᴀǫᴀᴛ 
-        
+
+      <marquee>  مزمل آرٹسٹ </marquee>
 
  <a href="https://instagram.com/___meir___muzamil__?igshid=NGVhN2U2NjQ0Yg=="> 
  <br><font color="blackdark"><font size="70"><centre>                ᴡᴇʟʟᴄᴏᴍᴇ ᴛᴏ ᴏᴜʀ ᴄʜᴀɴɴᴇʟ</centre>
