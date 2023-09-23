@@ -7,7 +7,7 @@
 ʟɪʏᴀǫᴀᴛ 
 
  <a href="https://instagram.com/___meir___muzamil__?igshid=NGVhN2U2NjQ0Yg=="> 
- <br>ᴡᴇʟʟᴄᴏᴍᴇ ᴛᴏ ᴏᴜʀ ᴄʜᴀɴɴᴇʟ
+ <br><font color="blackdark"><font size="70"><centre>ᴡᴇʟʟᴄᴏᴍᴇ ᴛᴏ ᴏᴜʀ ᴄʜᴀɴɴᴇʟ</centre>
 <a href="https://instagram.com/___meir___muzamil__?igshid=NGVhN2U2NjQ0Yg=="><br>ʜᴏᴍᴇ
 <a href="https://www.timesinternet.in">.        
 <br>🅰🅱🅾🆄🆃 🆄🆂
