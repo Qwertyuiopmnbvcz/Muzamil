@@ -5,7 +5,7 @@
 <!DOCTYPE html>
 <html>
 <head>
-   <title></title>
+
 </head>
 <body background="black">
 <table border="2"width="100%"height="700px">
