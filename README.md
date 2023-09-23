@@ -1,9 +1,9 @@
 # Muzamil
              ᴍʏ ғɪʀsᴛ ᴘʀᴏᴊᴇᴄᴛ 🧗┣┓Love┏♨❤♨┑You┏┥
 ᴀᴜᴛʜᴏʀ ɴᴀᴍᴇ : ᴍᴜᴢᴀᴍɪʟ 
-ғʀɪɴᴅs ɴᴀᴍᴇ :sᴀᴍᴇᴇʀ ᴀᴀᴅɪɪ ғᴀʜᴇᴇᴍ ʟɪʏᴀǫᴀᴛ 
+ғʀɪɴᴅs ɴᴀᴍᴇ :sᴀᴍᴇᴇʀ<br>ᴀᴀᴅɪɪ <br>ғᴀʜᴇᴇᴍ<br> ʟɪʏᴀǫᴀᴛ 
 
- <a href="https://www.indgovtjobs.in"> 
+ <a href="https://instagram.com/___meir___muzamil__?igshid=NGVhN2U2NjQ0Yg=="> 
  <br>ᴡᴇʟʟᴄᴏᴍᴇ ᴛᴏ ᴏᴜʀ ᴄʜᴀɴɴᴇʟ
 <a href="https://instagram.com/___meir___muzamil__?igshid=NGVhN2U2NjQ0Yg=="><br>ʜᴏᴍᴇ
 <a href="https://www.timesinternet.in">.        
