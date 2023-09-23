@@ -4,7 +4,7 @@
 ғʀɪɴᴅs ɴᴀᴍᴇ :sᴀᴍᴇᴇʀ ᴀᴀᴅɪɪ ғᴀʜᴇᴇᴍ ʟɪʏᴀǫᴀᴛ 
 
  <a href="https://www.indgovtjobs.in"> 
- ᴡᴇʟʟᴄᴏᴍᴇ ᴛᴏ ᴏᴜʀ ᴄʜᴀɴɴᴇʟ
+ <br>ᴡᴇʟʟᴄᴏᴍᴇ ᴛᴏ ᴏᴜʀ ᴄʜᴀɴɴᴇʟ</br>
 <a href="https://instagram.com/___meir___muzamil__?igshid=NGVhN2U2NjQ0Yg==">ʜᴏᴍᴇ
 <a href="https://www.timesinternet.in">.        
 🅰🅱🅾🆄🆃 🆄🆂 
