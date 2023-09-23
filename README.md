@@ -1,5 +1,5 @@
 # Muzamil
-             ᴍʏ ғɪʀsᴛ ᴘʀᴏᴊᴇᴄᴛ 🧗┣┓Love┏♨❤♨┑You┏┥
+            <centre>ᴍʏ ғɪʀsᴛ ᴘʀᴏᴊᴇᴄᴛ 🧗┣┓Love┏♨❤♨┑You┏┥</centre>
 ᴀᴜᴛʜᴏʀ ɴᴀᴍᴇ : ᴍᴜᴢᴀᴍɪʟ 
 ғʀɪɴᴅs ɴᴀᴍᴇ :sᴀᴍᴇᴇʀ 
 ᴀᴀᴅɪɪ 
@@ -13,7 +13,7 @@
 <br>🅰🅱🅾🆄🆃 🆄🆂
 <a href="https://www.indgovtjobs.in9103594759">
 <br>ᴄᴏɴᴛᴀᴄᴛ
-<font size="100">w𝒆𝒍𝒍 𝒄𝒐𝒎𝒆 𝒕𝒐 𝒐𝒖𝒓 𝒘𝒆𝒃𝒔𝒊𝒕𝒆
+<font color="blue"><font size="100">w𝒆𝒍𝒍 𝒄𝒐𝒎𝒆 𝒕𝒐 𝒐𝒖𝒓 𝒘𝒆𝒃𝒔𝒊𝒕𝒆</font></font>
 <a href="https://instagram.com/___meir___muzamil__?igshid=NGVhN2U2NjQ0Yg== "><br>ғᴏʟʟᴏᴡ ᴍʏ ɪɴsᴛᴀɢʀᴀᴍ ɪᴅ
 
 
