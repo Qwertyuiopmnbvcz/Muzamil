@@ -22,3 +22,8 @@
 
 <a href="https://youtube.com/@muzamilmeer?feature=shared "><br><font color="blue red"><font size="40"> sᴜʙsᴄʀɪʙᴇ ɴᴏᴡ
 <br><font color="green"><font size="50"> ᴛʜᴀɴᴋs ғᴏʀ ᴠɪsɪᴛɪɴɢ
+<font size="800"><font ccolorolor="black">🅼🆄🆉🅰🅼🅸🅻 </font>
+<font size="800"><font color="dark">𝕤𝕒𝕞𝕖𝕖𝕣</font>
+<font size="800"><font color="pink">𝕒𝕒𝕕𝕚𝕚 </font>
+<font size="800"><font color="orange">ғᴀʜᴇᴇᴍ </font>
+<font size="800"><font color="red">ʟɪʏᴀǫᴀᴛ</font>
