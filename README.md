@@ -1,5 +1,5 @@
-             ｍ𝗎𝘇ɑｍⅈ𝘐
-            ᴍʏ ғɪʀsᴛ ᴘʀᴏᴊᴇᴄᴛ 🧗┣┓Love┏♨❤♨┑You┏┥
+        <center>  🅼🆄🆉🅰🅼🅸🅻 🅰🅷🅼🅰🅳 🅼🅸🆁 </center>
+            ᴍʏ ғɪʀsᴛ ᴘʀᴏᴊᴇᴄᴛ Love♨❤♨You
 ᴀᴜᴛʜᴏʀ ɴᴀᴍᴇ : ᴍᴜᴢᴀᴍɪʟ 
 ғʀɪɴᴅs ɴᴀᴍᴇ :sᴀᴍᴇᴇʀ 
 ᴀᴀᴅɪɪ 
@@ -41,5 +41,5 @@
   <br>
   <br><marquee direction="right"><img src="1682513687899.png" width="350px" height="400px"/></marquee>
    <center>ғᴀʜᴇᴇᴍ ᴘʜᴏᴛᴏ</center>
+   <br><marquee direction="right"><img src="Snapchat-1354903259.jpg"width="350px" height="400px"/></marquee>
    
-IMG_20230918_19574157.jpg
