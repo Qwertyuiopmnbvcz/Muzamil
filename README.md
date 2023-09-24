@@ -34,4 +34,4 @@
 <br><font size="800"><font color="red"><marquee direction="left">ʟɪʏᴀǫᴀᴛ</marquee></font>
  <br><font size="500" font color="blue">   <center>   sᴀᴍᴇᴇʀ </font>
 <br><marquee direction="right"><img src="1684257222349.png" width="350px" height="400px"/></marquee>
- <center>Hi Geeks</center>
+ <center>sᴀᴍᴇᴇʀ ᴘʜᴏᴛᴏ</center>
