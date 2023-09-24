@@ -30,7 +30,7 @@
 <br> <img src="1684257222349.png" width="350px" height="400px"/>
  
  <center>ᴀᴀᴅɪɪ ᴘʜᴏᴛᴏ</center><br>
-  <img src="IMG_20230918_19574157.jpg " width="350px" height="400px"/>
+  <img src="IMG_20230918_19574157.jpg " width="350px" height="400px"/><br>
   <center>ᴍᴜᴢᴀᴍɪʟ ᴘʜᴏᴛᴏ</center>
   <br>
   <br><img src="1682513687899.png" width="350px" height="400px"/>
