@@ -22,7 +22,7 @@
 <a href="https://www.timesinternet.in">.  </a>      
 <br>🅰🅱🅾🆄🆃 🆄🆂
 <a href="https://www.indgovtjobs.in9103594759"></a>
-<br>ᴄᴏɴᴛᴀᴄᴛ
+ᴄᴏɴᴛᴀᴄᴛ<br>
 <font color="blue"><font size="100">w𝒆𝒍𝒍 𝒄𝒐𝒎𝒆 𝒕𝒐 𝒐𝒖𝒓 𝒘𝒆𝒃𝒔𝒊𝒕𝒆</font></font>
 <a href="https://instagram.com/___meir___muzamil__?igshid=NGVhN2U2NjQ0Yg== "></a><br><font size="30"></a><center>ғᴏʟʟᴏᴡ ᴍʏ ɪɴsᴛᴀɢʀᴀᴍ ɪᴅ</center></font>
 
