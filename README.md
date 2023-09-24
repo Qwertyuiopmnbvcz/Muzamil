@@ -38,6 +38,6 @@
  <center>ᴀᴀᴅɪɪ ᴘʜᴏᴛᴏ</center>
   <center>ᴍᴜᴢᴀᴍɪʟ ᴘʜᴏᴛᴏ</center>
   <br>
-  <br><marquee direction="right"><img src=" " width="350px" height="400px"/></marquee>
+  <br><marquee direction="right"><img src="1682513687899.png" width="350px" height="400px"/></marquee>
    <center>ғᴀʜᴇᴇᴍ ᴘʜᴏᴛᴏ</center>
    
