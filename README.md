@@ -9,8 +9,14 @@
  <br>
  <br>
  <br><font color="blackdark"><font size="70"><centre>                ᴡᴇʟʟᴄᴏᴍᴇ ᴛᴏ ᴏᴜʀ ᴄʜᴀɴɴᴇʟ</centre>
-<a href="https://instagram.com/___meir___muzamil__?igshid=NGVhN2U2NjQ0Yg=="><br><center>ʜᴏᴍe<br>
-<a href="https://www.timesinternet.in">     
+<br>
+   <br>
+   <br>
+   <a href="https://instagram.com/___meir___muzamil__?igshid=NGVhN2U2NjQ0Yg==">ʜᴏᴍe
+<br>
+  <br>
+  <br>
+  <a href="https://www.timesinternet.in">     
 🅰🅱🅾🆄🆃 🆄🆂<br></a>
 <br>
   <br>
