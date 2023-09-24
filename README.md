@@ -35,3 +35,6 @@
  <br><font size="500" font color="blue">   <center>   sᴀᴍᴇᴇʀ 
 <br><marquee direction="right"><img src="1684257222349.png" width="350px" height="400px"/></marquee>
  <center>sᴀᴍᴇᴇʀ ᴘʜᴏᴛᴏ</center>
+ <center>ᴀᴀᴅɪɪ ᴘʜᴏᴛᴏ</center>
+  <center>ᴍᴜᴢᴀᴍɪʟ ᴘʜᴏᴛᴏ</center>
+   <center>ғᴀʜᴇᴇᴍ ᴘʜᴏᴛᴏ</center>
