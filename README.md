@@ -32,12 +32,14 @@
 <br><font size="800"><font color="pink"><marquee direaction=" left">𝕒𝕒𝕕𝕚𝕚 </marquee>
 <br><font size="800"><font color="orange"><marquee direction="right">ғᴀʜᴇᴇᴍ </marquee>
 <br><font size="800"><font color="red"><marquee direction="left">ʟɪʏᴀǫᴀᴛ</marquee></font>
- <br><font size="500" font color="blue">   <center>   sᴀᴍᴇᴇʀ 
+ <br><font size="500" font color="blue">   <center>   sᴀᴍᴇᴇʀ ᴘʜᴏᴛᴏ</center>
 <br><marquee direction="right"><img src="1684257222349.png" width="350px" height="400px"/></marquee>
- <center>sᴀᴍᴇᴇʀ ᴘʜᴏᴛᴏ</center>
- <center>ᴀᴀᴅɪɪ ᴘʜᴏᴛᴏ</center>
+ 
+ <center>ᴀᴀᴅɪɪ ᴘʜᴏᴛᴏ</center><br>
+ <marquee direction="right"><img src="IMG_20230918_19574157.jpg " width="350px" height="400px"/></marquee>
   <center>ᴍᴜᴢᴀᴍɪʟ ᴘʜᴏᴛᴏ</center>
   <br>
   <br><marquee direction="right"><img src="1682513687899.png" width="350px" height="400px"/></marquee>
    <center>ғᴀʜᴇᴇᴍ ᴘʜᴏᴛᴏ</center>
    
+IMG_20230918_19574157.jpg
