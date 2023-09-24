@@ -20,7 +20,7 @@
 
 <font size="400"><font color="orange">𝚒 𝚕𝚘𝚟𝚎 𝚖𝚢 𝚏𝚛𝚒𝚗𝚍𝚜 </font>
    
-<marquee>مزمل میر</marquee>
+
 
 
 
