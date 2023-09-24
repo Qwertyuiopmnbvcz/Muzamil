@@ -31,7 +31,7 @@
 <br><font size="800"><font color="red"> ʟɪʏᴀǫᴀᴛ</font><br>
 <br>
 <br>
-<font size="600"><font color="blue"><center>𝚒 𝚕𝚘𝚟𝚎 𝚖𝚢 𝚏𝚛𝚒𝚗𝚍𝚜<center><<br>
+<font size="600"><font color="blue"><center>𝚒 𝚕𝚘𝚟𝚎 𝚖𝚢 𝚏𝚛𝚒𝚗𝚍𝚜<center><br>
  <br><font size="500" font color="blue">   <center>   sᴀᴍᴇᴇʀ ᴘʜᴏᴛᴏ</center>
 <br> <img src="1684257222349.png" width="350px" height="400px"/>
  
