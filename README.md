@@ -15,10 +15,9 @@
 <a href="https://www.indgovtjobs.in9103594759">
 ᴄᴏɴᴛᴀᴄᴛ<br></a>
 <font color="blue"><font size="700%">w𝒆𝒍𝒍 𝒄𝒐𝒎𝒆 𝒕𝒐 𝒐𝒖𝒓 𝒘𝒆𝒃𝒔𝒊𝒕𝒆</font></font>
-<br><a href="https://instagram.com/___meir___muzamil__?igshid=NGVhN2U2NjQ0Yg=="><br><font size="40">ғᴏʟʟᴏᴡ ᴍʏ ɪɴsᴛᴀɢʀᴀᴍ ɪᴅ</font></a>
+<br><a href="https://instagram.com/___meir___muzamil__?igshid=NGVhN2U2NjQ0Yg=="><br><font size="40">ғᴏʟʟᴏᴡ ᴍʏ ɪɴsᴛᴀɢʀᴀᴍ ɪᴅ<br>@1</font></a>
 
 <br><a href="https://youtube.com/@muzamilmeer?feature=shared"><br><font color="blue red"><font size="40">sᴜʙsᴄʀɪʙᴇ ɴᴏᴡ<br>
-</a>
 <br>
 <br>
 <br><font size="70"><font color="blue"> ᴛʜᴀɴᴋs ғᴏʀ ᴠɪsɪᴛɪɴɢ</font>
@@ -34,15 +33,15 @@
 <br>
 <font size="600"><font color="blue"><center>𝚒 𝚕𝚘𝚟𝚎 𝚖𝚢 𝚏𝚛𝚒𝚗𝚍𝚜<center><br>
  <br><font size="500" font color="blue">   <center>   sᴀᴍᴇᴇʀ ᴘʜᴏᴛᴏ</center>
-<br> <img src="1684257222349.png" width="350px" height="400px"/>
+<br> <img src="1684257222349.png" width="400px" height="400px"/>
  
  <center>ᴀᴀᴅɪɪ ᴘʜᴏᴛᴏ</center><br>
-  <img src="IMG_20230918_19574157.jpg " width="350px" height="400px"/><br>
+  <img src="IMG_20230918_19574157.jpg " width="400px" height="400px"/><br>
   <center>ᴍᴜᴢᴀᴍɪʟ ᴘʜᴏᴛᴏ</center>
   <br>
-  <br><img src="1682513687899.png" width="350px" height="400px"/>
+  <br><img src="1682513687899.png" width="400px" height="400px"/>
    <center>ғᴀʜᴇᴇᴍ ᴘʜᴏᴛᴏ</center>
-   <br><img src="Snapchat-1354903259.jpg" width="350px" height="400px"/>
+   <br><img src="Snapchat-1354903259.jpg" width="400px" height="400px"/>
    <br>
    <br>
    
