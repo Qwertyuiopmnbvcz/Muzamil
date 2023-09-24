@@ -28,18 +28,18 @@
 <a href="https://youtube.com/@muzamilmeer?feature=shared "><br><font color="blue red"><font size="40"></a> sᴜʙsᴄʀɪʙᴇ ɴᴏᴡ
 <br><font color="green"><font size="50"> ᴛʜᴀɴᴋs ғᴏʀ ᴠɪsɪᴛɪɴɢ
 <br><font size="800"><font ccolorolor="black">🅼🆄🆉🅰🅼🅸🅻 </font>
-<br><font size="800"><font color="dark"><marquee direction="right">𝕤𝕒𝕞𝕖𝕖𝕣</marquee>
-<br><font size="800"><font color="pink"><marquee direaction=" left">𝕒𝕒𝕕𝕚𝕚 </marquee>
-<br><font size="800"><font color="orange"><marquee direction="right">ғᴀʜᴇᴇᴍ </marquee>
-<br><font size="800"><font color="red"><marquee direction="left">ʟɪʏᴀǫᴀᴛ</marquee></font>
+<br><font size="800"><font color="dark"> 𝕤𝕒𝕞𝕖𝕖𝕣
+<br><font size="800"><font color="pink"> 𝕒𝕒𝕕𝕚𝕚
+<br><font size="800"><font color="orange"> ғᴀʜᴇᴇᴍ 
+<br><font size="800"><font color="red"> ʟɪʏᴀǫᴀᴛ</font>
  <br><font size="500" font color="blue">   <center>   sᴀᴍᴇᴇʀ ᴘʜᴏᴛᴏ</center>
-<br><marquee direction="right"><img src="1684257222349.png" width="350px" height="400px"/></marquee>
+<br> <img src="1684257222349.png" width="350px" height="400px"/>
  
  <center>ᴀᴀᴅɪɪ ᴘʜᴏᴛᴏ</center><br>
- <marquee direction="right"><img src="IMG_20230918_19574157.jpg " width="350px" height="400px"/></marquee>
+  <img src="IMG_20230918_19574157.jpg " width="350px" height="400px"/>
   <center>ᴍᴜᴢᴀᴍɪʟ ᴘʜᴏᴛᴏ</center>
   <br>
-  <br><marquee direction="right"><img src="1682513687899.png" width="350px" height="400px"/></marquee>
+  <br><img src="1682513687899.png" width="350px" height="400px"/>
    <center>ғᴀʜᴇᴇᴍ ᴘʜᴏᴛᴏ</center>
-   <br><marquee direction="right"><img src="Snapchat-1354903259.jpg"width="350px" height="400px"/></marquee>
+   <br><<img src="Snapchat-1354903259.jpg"width="350px" height="400px"/>
    
