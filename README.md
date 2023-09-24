@@ -9,7 +9,7 @@
  <br>
  <br>
  <br><font color="blackdark"><font size="70"><centre>                ᴡᴇʟʟᴄᴏᴍᴇ ᴛᴏ ᴏᴜʀ ᴄʜᴀɴɴᴇʟ</centre>
-<a href="https://instagram.com/___meir___muzamil__?igshid=NGVhN2U2NjQ0Yg=="><br><center>ʜᴏᴍᴇ</a><br>
+<a href="https://instagram.com/___meir___muzamil__?igshid=NGVhN2U2NjQ0Yg=="><br><center>ʜᴏᴍe<br>
 <a href="https://www.timesinternet.in">     
 🅰🅱🅾🆄🆃 🆄🆂<br></a>
 <a href="https://www.indgovtjobs.in9103594759">
@@ -17,7 +17,7 @@
 <font color="blue"><font size="700%">w𝒆𝒍𝒍 𝒄𝒐𝒎𝒆 𝒕𝒐 𝒐𝒖𝒓 𝒘𝒆𝒃𝒔𝒊𝒕𝒆</font></font>
 <br><a href="https://instagram.com/___meir___muzamil__?igshid=NGVhN2U2NjQ0Yg=="><br><font size="40">ғᴏʟʟᴏᴡ ᴍʏ ɪɴsᴛᴀɢʀᴀᴍ ɪᴅ</font></a>
 
-<br><a href="https://youtube.com/@muzamilmeer?feature=shared"><br><font color="blue red"><font size="40">sᴜʙsᴄʀɪʙᴇ ɴᴏᴡ
+<br><a href="https://youtube.com/@muzamilmeer?feature=shared"><br><font color="blue red"><font size="40">sᴜʙsᴄʀɪʙᴇ ɴᴏᴡ<br>
 </a>
 <br>
 <br>
