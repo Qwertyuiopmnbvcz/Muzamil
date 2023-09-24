@@ -25,14 +25,17 @@
 ᴄᴏɴᴛᴀᴄᴛ<br></a>
 <font color="blue"><font size="100">w𝒆𝒍𝒍 𝒄𝒐𝒎𝒆 𝒕𝒐 𝒐𝒖𝒓 𝒘𝒆𝒃𝒔𝒊𝒕𝒆</font></font>
 <br><a href="https://instagram.com/___meir___muzamil__?igshid=NGVhN2U2NjQ0Yg=="><br><font size="40">ғᴏʟʟᴏᴡ ᴍʏ ɪɴsᴛᴀɢʀᴀᴍ ɪᴅ</font></a>
-<font size="600"><font color="orange">𝚒 𝚕𝚘𝚟𝚎 𝚖𝚢 𝚏𝚛𝚒𝚗𝚍𝚜 </font><br>
+
 <br><a href="https://youtube.com/@muzamilmeer?feature=shared"><br><font color="blue red"><font size="40">sᴜʙsᴄʀɪʙᴇ ɴᴏᴡ</a>
 <br><font color="green"><font size="50"> ᴛʜᴀɴᴋs ғᴏʀ ᴠɪsɪᴛɪɴɢ<br>
 <font size="1000"><font ccolorolor="black">🅼🆄🆉🅰🅼🅸🅻 </font><br>
 <br><font size="800"><font color="dark"> 𝕤𝕒𝕞𝕖𝕖𝕣
 <br><font size="800"><font color="pink"> 𝕒𝕒𝕕𝕚𝕚
 <br><font size="800"><font color="orange"> ғᴀʜᴇᴇᴍ 
-<br><font size="800"><font color="red"> ʟɪʏᴀǫᴀᴛ</font>
+<br><font size="800"><font color="red"> ʟɪʏᴀǫᴀᴛ</font><br>
+<br>
+<br>
+<font size="600"><font color="orange"><center>𝚒 𝚕𝚘𝚟𝚎 𝚖𝚢 𝚏𝚛𝚒𝚗𝚍𝚜<center></font><br>
  <br><font size="500" font color="blue">   <center>   sᴀᴍᴇᴇʀ ᴘʜᴏᴛᴏ</center>
 <br> <img src="1684257222349.png" width="350px" height="400px"/>
  
