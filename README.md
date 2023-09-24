@@ -49,5 +49,5 @@
   <br>
   <br><img src="1682513687899.png" width="350px" height="400px"/>
    <center>ғᴀʜᴇᴇᴍ ᴘʜᴏᴛᴏ</center>
-   <br><<img src="Snapchat-1354903259.jpg"width="350px" height="400px"/>
+   <br><img src="Snapchat-1354903259.jpg"width="350px" height="400px"/>
    
