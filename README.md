@@ -32,4 +32,5 @@
 <br><font size="800"><font color="pink">𝕒𝕒𝕕𝕚𝕚 </font>
 <br><font size="800"><font color="orange">ғᴀʜᴇᴇᴍ </font>
 <br><font size="800"><font color="red">ʟɪʏᴀǫᴀᴛ</font>
-<img src="1684257222349.png"/>
+
+<br><img src="1684257222349.png">
