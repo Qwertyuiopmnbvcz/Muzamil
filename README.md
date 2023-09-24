@@ -20,7 +20,7 @@
  <br><font color="blackdark"><font size="70"><centre>                ᴡᴇʟʟᴄᴏᴍᴇ ᴛᴏ ᴏᴜʀ ᴄʜᴀɴɴᴇʟ</centre>
 <a href="https://instagram.com/___meir___muzamil__?igshid=NGVhN2U2NjQ0Yg=="></a><br>ʜᴏᴍᴇ
 <a href="https://www.timesinternet.in">.  </a>      
-<br>🅰🅱🅾🆄🆃 🆄🆂
+🅰🅱🅾🆄🆃 🆄🆂<br>
 <a href="https://www.indgovtjobs.in9103594759"></a>
 ᴄᴏɴᴛᴀᴄᴛ<br>
 <font color="blue"><font size="100">w𝒆𝒍𝒍 𝒄𝒐𝒎𝒆 𝒕𝒐 𝒐𝒖𝒓 𝒘𝒆𝒃𝒔𝒊𝒕𝒆</font></font>
