@@ -32,6 +32,6 @@
 <br><font size="800"><font color="pink">𝕒𝕒𝕕𝕚𝕚 </font>
 <br><font size="800"><font color="orange">ғᴀʜᴇᴇᴍ </font>
 <br><font size="800"><font color="red">ʟɪʏᴀǫᴀᴛ</font>
-
+</marquee>
 
 <img src="1682513687899.png"/>
