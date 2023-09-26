@@ -190,6 +190,7 @@
 
 				}
 		</style>
+  
 		<link rel="stylesheet" href="https://use.fontawesome.com/releases/v5.2.0/css/all.css" integrity="sha384-hWVjflwFxL6sNzntih27bfxkr27PmbbK/iSvJ+a4+0owXq79v+lsFkW54bOGbiDQ" crossorigin="anonymous">
 		<style >@import url(https://fonts.googleapis.com/css?family=Nunito:400,700|Titan+One|Creepster|Satisfy|Black+Ops+One|Eczar:700);</style>
 		
